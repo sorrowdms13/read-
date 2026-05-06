@@ -13,7 +13,7 @@ Please do not make suic-de jokes unless cf.
 
 Fandoms: ocean terror, circus in the sky, dandys world, flamingos friendgroup, wanderers of the field, tadc, scream,
 hb, hh, tlg, dod, gnb, bfdi/tpot/bfb/xfohv, spyro (preferably dawn of the dragon), banana splits, yaelokre, warriors, 
-resident evil, gobb, fnaf, regretevator, fpe, ppt, ecttttttt.
+resident evil, gobb, fnaf, regretevator, fpe, ppt, HOUSE OF PUSO OMG ecttttttt.
 
 prefered music makers/ comfort creators: 
 caseoh, flamingo, polarcub, wifiskeleton, stomach book, bbno$.
